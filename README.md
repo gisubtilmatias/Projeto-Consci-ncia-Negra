@@ -1,2 +1,2 @@
-# Projeto-Consci-ncia-Negra
+# Projeto-Consciência-Negra
 arquivos do projeto
